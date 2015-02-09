@@ -1,2 +1,0 @@
-# -ukrpost.ua
-Yashcik
